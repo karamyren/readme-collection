@@ -24,3 +24,23 @@ So what is a better use for the concept of imposter syndrome?
 
 > Impostor feelings often arise most acutely from threshold-crossing—from one social class to another, one culture to another, one vocation to another—something akin to what Pierre Bourdieu called the “split habitus,” the self dwelling in two worlds at once.
 
+## [Stop Telling Women They Have Imposter Syndrome](https://hbr.org/2021/02/stop-telling-women-they-have-imposter-syndrome)
+
+> Imposter syndrome directs our view toward fixing women at work instead of fixing the places where women work.
+
+and
+
+> Even if women demonstrate strength, ambition, and resilience, our daily battles with microaggressions, especially expectations and assumptions formed by stereotypes and racism, often push us down. Imposter syndrome as a concept fails to capture this dynamic and puts the onus on women to deal with the effects. Workplaces remain misdirected toward seeking individual solutions for issues disproportionately caused by systems of discrimination and abuses of power.
+
+Gender and race disparity in who can show confidence.
+
+> The same systems that reward confidence in male leaders, even if they’re incompetent, punish white women for lacking confidence, women of color for showing too much of it, and all women for demonstrating it in a way that’s deemed unacceptable. 
+
+oh hey
+
+> Imposter syndrome is especially prevalent in biased, toxic cultures that value individualism and overwork. 
+
+One of the authors has a good Tedx Talk about [Why you should not bring your authentic self to work](https://www.youtube.com/watch?v=HRi-jpzBiGo)
+
+
+
